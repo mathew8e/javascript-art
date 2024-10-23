@@ -1,0 +1,1 @@
+### Semestralka na Geometrické Vidění Světa
